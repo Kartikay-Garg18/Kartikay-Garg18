@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **kartikaygarg777@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15Nu_fphKN0WJSZP6Fb1pfXP_2dvxsVJi/view](https://drive.google.com/file/d/15Nu_fphKN0WJSZP6Fb1pfXP_2dvxsVJi/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1TBk35j-QGIrNlhmiZeJ49eMfE3qhQuVq/view?usp=sharing](https://drive.google.com/file/d/1TBk35j-QGIrNlhmiZeJ49eMfE3qhQuVq/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am funny🙂**
 
